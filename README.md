@@ -2,7 +2,7 @@
 ### I'm Junior QA Engineer and I open to work.
 ### You can view my CV by clicking on the arrow - [:arrow_forward:](link)
 ### :email: My contacts:
-### [<img src="https://www.pngwing.com/ru/free-png-saggv" width="80"/>](https://t.me/petermarkelov) 
+### [<img src="[https://www.pngwing.com/ru/free-png-saggv](https://png2.cleanpng.com/sh/761a4282cec180b68d9afd0860c2cdd0/L0KzQYm3VMA3N6F3iZH0aYP2gLBuTgRmdJZsitN2LXPyfcH8lPVzNZpoh9D8LX74d7b7TgRmdJh3ed82NXHmSITtgvM0OGEAfqs3MkK2SYmCWcUyPWM4SKk7OUW5QYq9WL5xdpg=/kisspng-telegram-computer-icons-nuget-telgram-5ac83fbc3009f9.2239899515230729561968.png)" width="80"/>](https://t.me/petermarkelov) 
 
 ### [<img src="https://www.seekpng.com/png/detail/30-301979_logo-for-website-linkedin-logo-vector-free-download.png" width="80"/>](https://www.linkedin.com/in/pmarkelov/) 
 
