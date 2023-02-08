@@ -1,5 +1,5 @@
 ## Hi there 👋 My name's Peter.
-### I'm Junior QA Engineer and I open to work.
+### I'm a Junior QA Engineer and I'm open for work.
 ### You can view my CV by clicking on the arrow - [:arrow_forward:](link)
 ## :email: My contacts:
 
