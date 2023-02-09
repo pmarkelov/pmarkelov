@@ -1,6 +1,6 @@
 ## Hi there 👋 My name's Peter.
 ### I'm Junior QA Engineer and I open to work.
-### You can view my CV by clicking on the arrow - [:arrow_forward:](link)
+### You can view my CV by clicking on the arrow - [:arrow_forward:](https://drive.google.com/file/d/1ExylsclWdTpmHm14Ef_UN675D-uZ_dc7/view?usp=share_link)
 ## :email: My contacts:
 
 ### [<img src="https://i.postimg.cc/FzrYwYQ2/pngwing-com.png" width="80"/>](https://t.me/petermarkelov)  [<img src="https://www.seekpng.com/png/detail/30-301979_logo-for-website-linkedin-logo-vector-free-download.png" width="80"/>](https://www.linkedin.com/in/pmarkelov/) <a href="mailto:peter.markelov33@icloud.com?body=Please, send me offer)))"><img src="https://i.pinimg.com/originals/d0/4e/fe/d04efe7341f7f30d7094cd39a5396c5c.png" width="80"/></a>
